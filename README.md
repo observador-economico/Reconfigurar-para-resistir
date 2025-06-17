@@ -1,0 +1,1 @@
+# Reconfigurar-para-resistir
